@@ -1,3 +1,8 @@
+HELP OFFERED HERE: https://discord.gg/vKVBbyfHTD
+
+
+
+
 I took the best 3 macros, Comet, IRUS 6.75, Idiotproof,
 and merged them together,
 then compeletely revamp the ui,
