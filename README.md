@@ -1,4 +1,4 @@
-HELP OFFERED HERE: https://discord.gg/vKVBbyfHTD
+DOWNLOAD LINK HELP OFFERED HERE: https://discord.gg/vKVBbyfHTD
 
 
 
