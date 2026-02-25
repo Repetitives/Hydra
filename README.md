@@ -1,4 +1,4 @@
-IF YOU NEED HELP/ SUPPORT: https://discord.gg/GpDjNKXRf6
+IF YOU NEED HELP/SUPPORT: https://discord.gg/GpDjNKXRf6
 
 
 
