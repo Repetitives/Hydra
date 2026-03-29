@@ -1,4 +1,4 @@
-IF YOU NEED HELP/SUPPORT: https://discord.gg/GpDjNKXRf6
+IF YOU NEED HELP/SUPPORT: https://discord.gg/zyr4QrfcMw
 
 
 
@@ -12,3 +12,4 @@ made the features work as originally intended,
 and fixed a ton of bug fixes,
 and then put it all into hydra,
 basically the best fisching macro oat (im that guy)
+outdated i added a bunch of more shit too
